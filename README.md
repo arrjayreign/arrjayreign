@@ -5,4 +5,4 @@ local inkypages enjoyer.
 - tang kinnie/irl
 
 - interests;
-- hotline miami 1 & 2, lego monkie kid, marvel & dc comics, invincible, superhero media.
+ hotline miami 1 & 2, lego monkie kid, marvel & dc comics, invincible, superhero media.
